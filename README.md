@@ -1,2 +1,2 @@
 # FL-Studio-21
-Read the readme file.
+Its cracked with cracking supports so you gotta remove your anti virus for it to work
